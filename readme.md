@@ -1,0 +1,1 @@
+https://g.co/gemini/share/99b67711343e
